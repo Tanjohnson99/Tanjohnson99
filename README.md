@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Tanjohnson99
+- 👀 I’m interested in Network, hosting, web...
+- 🌱 I’m currently learning , for me
+- 💞️ I’m looking to collaborate on everything
+- 📫 How to reach me ... on Git
